@@ -99,7 +99,7 @@ I'm passionate about continuous learning and am working towards honing my skills
 ---
 
 ## How to Reach Me  
-📫 Email: [kelly.kilpatrick@example.com](mailto:kelly.kilpatrickjay@gmail.com)  
+📫 Email: [kelly.kilpatrickjay@gmail.com](mailto:kelly.kilpatrickjay@gmail.com)  
 💼 LinkedIn: [Kelly Kilpatrick](http://www.linkedin.com/in/kelly-k-8516622a4)
 
 
